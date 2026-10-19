@@ -1,2 +1,2 @@
 # DANISEFUMI
-To meet the need of Africans
+To meet the Africa needs
